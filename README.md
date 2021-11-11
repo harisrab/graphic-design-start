@@ -8,3 +8,7 @@
 ![Poma-Technologies](https://user-images.githubusercontent.com/62747193/141243726-f68995a7-7272-4ca5-8a22-6221a7fb6c12.png)
 ![Screenshot 2021-11-11 134000](https://user-images.githubusercontent.com/62747193/141243876-dbf193c2-0142-4e49-abbf-df6d7f02b795.png)
 ![Screenshot 2021-11-11 133936](https://user-images.githubusercontent.com/62747193/141243879-7dce18f4-c662-4cfb-a3b2-7872690a3ce6.png)
+![minima-inc](https://user-images.githubusercontent.com/62747193/141243995-d347c722-40ea-4faf-971d-63824978739d.png)
+![Untitled-1-01](https://user-images.githubusercontent.com/62747193/141244001-fce21364-40bd-4758-88f8-1765ed419578.jpg)
+![Walveska](https://user-images.githubusercontent.com/62747193/141244013-b141ebfc-a215-4f3c-be25-2ec3325aaba9.jpg)
+![Screenshot 2021-11-11 134213](https://user-images.githubusercontent.com/62747193/141244105-d1c8f02e-613f-44d6-a7d4-38d4c20f321d.png)
